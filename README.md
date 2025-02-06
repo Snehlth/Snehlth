@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Snehlth
-- i love to learn :)
+- i love knowing new things.
